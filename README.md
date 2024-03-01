@@ -3,4 +3,4 @@
 - Vasquez Trujillo Jorge Alonso  jvasquezt2004
 - Ugalde Diaz Mariano  nodexs0
 - Juarez Tuxpan Selene  Selex9034
-- Cordova CAlva Mario  Brosscom27
+- Cordova Calva Mario  Brosscom27
